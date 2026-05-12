@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS best Brush Pack - blend modes and content-aware fill is the best Adobe Photoshop for macOS brush, featuring blend modes and content-aware fill. Safe,
 
 
 
